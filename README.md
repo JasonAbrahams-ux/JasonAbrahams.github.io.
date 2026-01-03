@@ -1,3 +1,4 @@
+![Jason Abrahams](pfp.png)
 # Hi, I’m Jason 👋
 
 **Skills:** BPO | Lead Gen | Virtual Assistance | E-com & Shopify Support  
